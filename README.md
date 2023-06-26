@@ -1,0 +1,1 @@
+# I-took-and-passed-the-Salesforce-Pardot-Consultant-exam-in-2023-.
